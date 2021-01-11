@@ -1,1 +1,1 @@
-![cat_on_laptop](http://gph.is/28L3zmi)
+![cat on laptop](https://media.giphy.com/media/8hlguHBXMt5mw/giphy.gif)
