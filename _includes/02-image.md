@@ -1,1 +1,1 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+[cat_on_laptop](http://gph.is/28L3zmi)
